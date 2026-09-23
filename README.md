@@ -1,1 +1,0 @@
-# calculadoraprobabilidade.github.io
